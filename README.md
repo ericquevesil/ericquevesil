@@ -7,7 +7,7 @@
 
 🔧 Electronics Technician (IFSUL) with 5+ years of IT experience.
 
-🔬 Researcher Laboratory of Sociological Investigation (LABIS/UFSM), CNPq research group in UFSM.
+🔬 Researcher at the Laboratory of Sociological Investigation (LABIS/UFSM), CNPq research group in UFSM.
 
 🚀 Passionate about merging technology with social sciences to solve real-world problems.
 
