@@ -5,7 +5,7 @@
 
 🎓 Graduating in Social Sciences (UFSM) & Data Science (UNINTER).
 
-🔧 Electronics Technician (IFSUL) with 5+ years of IT experience.
+🔧 Electronics Technician (IFSUL) with 5+ years experience as IT support.
 
 🔬 Researcher at the Laboratory of Sociological Investigation (LABIS/UFSM), CNPq research group in UFSM.
 
