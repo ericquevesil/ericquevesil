@@ -38,6 +38,9 @@ Research assistant at Project “Climate disasters: sociocultural dimensions of 
    
   - Created digital content and technical reports.
 
+scholarship holder in the Department of Social Sciences
+  - Responsible for organizing and laying out materials and products created by teachers and students linked to the Postgraduate Programme in Social Sciences and the Undergraduate Courses in Social Sciences - Bachelor's and Licentiate's degrees, at the Federal University of Santa Maria. Project nº059379 - Inequalities Observatory.
+
 ## 📚 Courses:
 Algorithms, Artificial Intelligence and Machine Learning - DIO (20h).
 
