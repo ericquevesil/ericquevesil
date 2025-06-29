@@ -1,5 +1,5 @@
 ## 🧑‍💻 Data Enthusiast | Tech Support | Social Scientist
-👋 Hey there! I'm Eric, an uruguayan GenZ and tech professional.
+👋 Hey there! I'm Eric, a uruguayan GenZ and tech professional.
 
 📍 Based in Santa Maria, Brazil.
 
